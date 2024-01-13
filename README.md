@@ -1,4 +1,4 @@
-小组成员：
+membre de l'équipe：
 Iris  1550306390@qq.com
 Yves
 Quentin
